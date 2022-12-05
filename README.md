@@ -47,6 +47,5 @@
 >ZF3R0-FHED2-M80TY-8QYGC-NPKYF 
 
 
-By Sacha1083:
-![Sacha1083](https://user-images.githubusercontent.com/87449379/205734326-d660b00d-29ee-475a-a231-0d6a323aa7aa.jpg)
+By Sacha1083
 
